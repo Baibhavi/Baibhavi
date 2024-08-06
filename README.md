@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **baibhavipandey@gmail.com**
 
-- ⚡ Fun fact **Love reading books**
+- ⚡ Fun fact **Love Anime and Manga**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
